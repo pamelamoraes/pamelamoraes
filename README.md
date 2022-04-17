@@ -2,4 +2,6 @@
 
 - 🌱 Estudando Design Gráfico e UI Design
 - 📫 Contate-me no e-mail: contato.pamelamoraes@gmail.com
-- 😄 Pronouns: ela/dela
+-  🎨 Portfólio: www.behance.net/pmelamoraes3
+-  😊 Pronomes: ela/dela
+-  
